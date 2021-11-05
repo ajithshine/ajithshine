@@ -7,7 +7,7 @@
 
 - 📫 How to reach me **ajithshine77@gmail.com**
 
-- 📄 Know about my experiences [https://bit.ly/ajithShine](https://bit.ly/ajithShine)
+- 📄 Know about my experiences [Resume](https://bit.ly/ajithShine)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
